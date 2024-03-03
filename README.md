@@ -1,6 +1,6 @@
 # 飞机云官网地址
 
-最新地址：[feijiyun55.com](https://feijiyun38.xyz/auth/register?code=eUVD)
+最新地址：[feijiyun55.com](https://feijiyun38.com/auth/register?code=eUVD)
 
 ## 飞机云介绍
 
