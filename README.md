@@ -1,6 +1,6 @@
 # 飞机云官网地址
 
-最新地址：[feijiyun670.com](https://feiji017.xyz/auth/register?code=eUVD)
+最新地址：[feijiyun670.com](https://feiji658.xyz/auth/register?code=eUVD)
 
 ## 飞机云介绍
 
@@ -12,9 +12,9 @@
 
 ## 飞机云优惠码
 
-特惠包年7折优惠代码：FJ555 
+特惠包年7折优惠代码：FJ520 
 
-结束时间2025.12.1
+结束时间2026.1.1
 
 ## 飞机云价格
 
